@@ -1,0 +1,1 @@
+# squads-goals-cairo
